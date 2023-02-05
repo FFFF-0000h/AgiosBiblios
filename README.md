@@ -6,7 +6,7 @@ Matthew
 
 Q- What Gospel?
 
-<p> Summary </p>
+<p> Summary by Verses </p>
 {1:1} → {1:17} - Generation of our Lord Jesus Christ
 
 {1:18} → {1:25} - How Jesus was born, based on prophecy and how he got his name JESUS; Mary and Joseph lived and were espoused in Bethlehem of Judaea.
